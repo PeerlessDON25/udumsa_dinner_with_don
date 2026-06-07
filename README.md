@@ -9,9 +9,9 @@
 
 ## 🩺 About DON
 
-DON is a medical student at **Usmanu DanFodiyo University** and proud member of **UDUMSA** — the kind of person who studies the human heart both *academically* and, on occasion, *recreationally*.
+DON is a medical student and proud member of **UDUMSA** — the kind of person who studies the human heart both *academically* and, on occasion, *recreationally*.
 
-By day, DON is learning to save lives, interpret ECGs, and survive 8 AM lectures on histology. By night? Red carpets, awards, and dinner tables that require actual napkin etiquette.
+By day, DON is learning to save lives, interpret ECGs, and survive 8 AM Neurology lectures. By night? Red carpets, awards, and dinner tables that require actual napkin etiquette.
 
 DON is the rare combination of **intellectually stimulating** and **surprisingly fun at parties** — a differential diagnosis that most people don't expect but everyone appreciates once they encounter it.
 
@@ -38,7 +38,7 @@ This is not your average outing. This is an *awards night*. There will be trophi
 
 ---
 
-## 💫 Why the Perfect Candidate Will Enjoy This Date
+##  Why the Perfect Candidate Will Enjoy This Date
 
 Let's be transparent. If you are the right person, here is what your evening looks like:
 

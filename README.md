@@ -79,7 +79,7 @@ You are probably a good fit if:
 
 ## 📋 How to Apply
 
-Fill out the official application form here: [Apply Now]([index.html](https://peerlessdon25.github.io/udumsa_dinner_with_don/))
+Fill out the official application form here: [Apply Now](https://peerlessdon25.github.io/udumsa_dinner_with_don/))
 
 All applications are reviewed with the seriousness they deserve, which is *some* seriousness.
 
